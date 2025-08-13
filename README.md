@@ -28,7 +28,7 @@ _With friends: Memelike, silly, chaotic, excited, sometimes semiverbal_
 
 I'm usually sitting in front of the bakery with my friends and/or fiancé!
 
-</div> <div align="left"> <img width="204" height="236" alt="pony-town-Elise _ 5(3___3-boop-lie-shadow-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/42e6c2d9-a5d3-4f88-ba9b-2f2710624a22" /> This is my main / irl skin!
+</div> <div align="left"> <img width="204" height="236" alt="pony-town-Elise _ 5(3___3-boop-lie-shadow-padded-ponyplush-4x (1)" src="https://github.com/user-attachments/assets/ea6b52de-608a-44eb-8852-c67ed1be1283" /> This is my main / irl skin!
 
 
 </div> <div align="right"> This is my male irl skin, aka "Eliott" <img width="200" height="244" alt="pony-town-Elliot _ 5(3___3 ♂-lie-shadow-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/da87cd5c-229e-406f-bc1e-9903c8d210c3" />
